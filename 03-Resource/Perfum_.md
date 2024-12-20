@@ -1,0 +1,6 @@
+---
+aliases:
+  - "Perfum "
+---
+
+Boss scent
